@@ -1,4 +1,4 @@
-This is my Portfolio
+HI My Name is Syafiq Sahli. This is my Portfolio
 
 Extremely motivated to constantly develop my skills and grow professionally. I am seeking a position with an opportunity for professional challenges in related fields to achieve short-term and long-term goals as well as for the betterment of the organization.
 
